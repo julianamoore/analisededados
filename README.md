@@ -1,3 +1,3 @@
 homework and projects for data analysis
-mackenzie college
-juliana moore
+mackenzie college!!
+juliana moore 🐈‍⬛
